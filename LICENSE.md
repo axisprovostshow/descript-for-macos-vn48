@@ -1,4 +1,4 @@
-# 
+# Descript for macOS ultimate Transition: keyframe-animation & green-screen-removal offers the most advanced Descript for macOS transition, with keyframe-animation and
 
 
 
